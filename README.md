@@ -1,6 +1,6 @@
 - 👋 Haloo semuaa, saya @aryanioktaviani02
 - saya salah satu Mahasiswa aktif di Universitas Teknologi Digital Indonesia
-- Saya mengambil jurusan D3 Sistem Informasi Akuntansi dengan jenjang 
+- Saya mengambil jurusan Sistem Informasi Akuntansi dengan jenjang D3
 - Saya asli dari Sumatera Barat, lahir di Lampung
 - Sekian dulu yaaa
 
